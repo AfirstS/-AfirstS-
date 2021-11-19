@@ -7,5 +7,5 @@
 <!---
 AfirstS/AfirstS is a ✨ special ✨ repository because its `README.md` (this file) appears on your🔗🎣🏧➖➖GitHub profile.
 You can click the Preview link to take a look at your changes.
---->👀
+--->👀https://youtube.com/channel/UCEReoVgiWP3l9Z6M_owzq_Q
 🏧🔗Hi-World🔗🏧
